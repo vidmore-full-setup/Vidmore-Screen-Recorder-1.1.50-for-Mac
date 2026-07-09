@@ -1,0 +1,1 @@
+# Vidmore-Screen-Recorder-1.1.50-for-Mac
